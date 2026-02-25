@@ -10,3 +10,7 @@
 1634
 78
 345
+presale
+safe wallet
+don't fade
+76Fahhh
